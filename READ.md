@@ -2,3 +2,6 @@
 
 I am from kambia, Sierra Leone.
 medbangs
+Love Kambia
+Yes
+med bangs
