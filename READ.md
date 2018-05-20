@@ -4,4 +4,4 @@ I am from kambia, Sierra Leone.
 medbangs
 Love Kambia
 Yes
-yes you
+Brother
